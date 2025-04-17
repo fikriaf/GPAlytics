@@ -113,4 +113,4 @@ GPAlytics adalah sistem bantu akademik yang menerapkan prinsip software engineer
 
 ## 📬 Kontak
 
-Untuk pertanyaan dan masukan, silakan hubungi anggota tim melalui platform kampus.
+[Whatsapp](wa.me/6289348505284)
